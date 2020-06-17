@@ -12,6 +12,6 @@ He is the protagonist and main character in both the Halo trilogy and Reclaimer 
 * Intelligent
 * Strategically
 
-
-
 > Wake me… when you need me.
+
+<img src="https://vignette.wikia.nocookie.net/halo/images/a/a9/H5G_Render_John117-Profile.png/revision/latest/scale-to-width-down/350?cb=20170605101747">
