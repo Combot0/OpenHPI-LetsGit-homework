@@ -11,3 +11,7 @@ He is the protagonist and main character in both the Halo trilogy and Reclaimer 
 * Helpful
 * Intelligent
 * Strategically
+
+
+
+> Wake me… when you need me.
